@@ -1,2 +1,0 @@
-# yusuf
-Blue tick
